@@ -31,5 +31,3 @@ Plant your “seed of happiness” with the **Positivity Tree**. Every click giv
 * Motivational quotes with the Positivity Tree
   Move & Mood makes caring for your mental health fun, engaging, and rewarding.
 
-
-If you want, I can **also condense this into a polished 1500–2000 character version** ready for **App Store or Play Store submission**. Do you want me to do that?
